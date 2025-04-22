@@ -1,0 +1,1 @@
+# furkan_resume_2025
